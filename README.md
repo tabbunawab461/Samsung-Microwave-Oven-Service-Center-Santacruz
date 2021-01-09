@@ -1,0 +1,2 @@
+# Samsung-Microwave-Oven-Service-Center-Santacruz
+Microwave oven can’t be cooked in the metal vessels, all people chooses microwave ovens because children’s want to eat junk food but parents not allowed to eat the food but when microwave oven is there we can cook the food in our home itself. Grill microwave ovens they don’t have many options like solo and convections has many options to cook the food. https://samsung-servicecenterinmumbai.com/samsung-microwave-oven-service-center-santacruz/
